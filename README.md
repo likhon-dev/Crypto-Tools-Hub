@@ -1,2 +1,2 @@
 # Crypto-Tools-Hub
-🎉 Coming Soon on blockchain.scripters.shop 🎉
+Coming Soon on blockchain.scripters.shop 🎉
